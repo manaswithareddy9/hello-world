@@ -1,3 +1,3 @@
 Hello Kannaaaa!
 
-           <<Lux>>
+           <<Manuuu>>
